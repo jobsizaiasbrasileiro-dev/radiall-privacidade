@@ -71,7 +71,7 @@ sempre disponível nesta página.
 ## 9. Contato
 
 Em caso de dúvidas sobre esta Política de Privacidade, entre em contato pelo
-e-mail: **[coloque-seu-email-aqui]**
+e-mail: **jobs.izaiasbrasileiro@gmail.com**
 
 ---
 
